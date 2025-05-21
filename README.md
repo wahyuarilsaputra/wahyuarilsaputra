@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hai! saya mahasiswa teknik informatika Universitas Trunojoyo Madura
+Hai! saya Fresh Graduate dari Teknik Informatika Universitas Trunojoyo Madura
 
 
 ## 🌐 Socials:
